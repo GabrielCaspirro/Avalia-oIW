@@ -1,1 +1,1 @@
-https://gabrielcaspirro.github.io/Avalia-oIW/
+https://gabrielcaspirro.github.io./Avalia-oIW
